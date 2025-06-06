@@ -8,6 +8,8 @@
 
 4. Pe cele slabe nu le-aţi întărit; oaia bolnavă n-aţi lecuit-o şi pe cea rănită n-aţi legat-o; pe cea rătăcită n-aţi întors-o şi pe cea pierdută n-aţi căutat-o, ci le-aţi stăpânit cu asprime şi cruzime. 
 
+5. Şi ele, neavînd păstor, s-au risipit și, risipindu-se, au ajuns mîncarea tuturor fiarelor cîmpului.
+
 6. De aceea rătăcesc oile Mele prin toţi munţii şi pe tot dealul înalt; împrăştiatu-s-au oile Mele peste toată faţa pământului şi nimeni nu îngrijeşte de ele şi nimeni nu le caută. 
 
 7. De aceea, ascultaţi păstori, cuvântul Domnului: 

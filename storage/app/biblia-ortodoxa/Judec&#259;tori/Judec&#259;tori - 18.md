@@ -8,6 +8,8 @@
 
 4. Iar el le-a răspuns: "Cutare şi cutare a făcut pentru mine Mica şi mi-a dat simbrie şi iată eu îi sunt preot". 
 
+5. Aceia însă i-au zis: "Întreabă pe Dumnezeu, ca să ştim, de vom izbuti pe calea în care am plecat".
+
 6. Iar preotul le-a zis: "Mergeţi cu pace, calea voastră în care mergeţi este înaintea Domnului". 
 
 7. Şi s-au dus cei cinci bărbaţi şi au ajuns la Laiş şi au văzut că poporul din el trăieşte în pace, după obiceiul Sidonienilor, liniştit şi fără grijă, şi că nu era în ţara aceea cine să obijduiască cu ceva sau să aibă stăpânire: de Sidonieni ei trăiau departe şi cu nimeni nu aveau ei nici o treabă. 

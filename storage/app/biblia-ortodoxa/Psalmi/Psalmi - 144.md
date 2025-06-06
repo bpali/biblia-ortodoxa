@@ -40,5 +40,5 @@
 
 20. Domnul păzeşte pe toţi cei ce-L iubesc pe El şi pe toţi păcătoşii îi va pierde. 
 
-21. Lauda Domnului va grăi gura mea şi să binecuvinteze tot trupul  numele cel sfânt al Lui, zn veac şi în veacul veacului. 
+21. Lauda Domnului va grăi gura mea şi să binecuvinteze tot trupul numele cel sfânt al Lui, în veac şi în veacul veacului. 
 

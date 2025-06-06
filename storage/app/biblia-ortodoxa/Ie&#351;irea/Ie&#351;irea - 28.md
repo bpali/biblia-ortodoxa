@@ -8,11 +8,13 @@
 
 4. Iată dar veşmintele ce trebuie să facă: hoşen, efod, meil, hiton, chidar şi cingătoare. Acestea sunt veşmintele sfinţite, ce trebuie să facă ei lui Aaron, fratele tău, şi fiilor lui, ca să-Mi slujească ei ca preoţi. 
 
+5. Pentru aceasta vor lua aur curat şi mătăsuri violete, purpurii şi stacojii şi in subţire
+
 6. Şi vor face efod lucrat cu iscusinţă din fire de aur, de mătase violetă, stacojie şi vişinie, răsucită şi de în răsucit. 
 
 7. Acesta va fi din două bucăţi: una pe piept şi alta pe spate, unite pe umeri cu două încheietori. 
 
-8. Cingătoarea efodului, care vine peste el, să fie lucrată la fel cu el, din fire de aur curat, de mătase violetă, stacojie şi vişinie, răsucită şi de în răsucit 
+8. Cingătoarea efodului, care vine peste el, să fie lucrată la fel cu el, din fire de aur curat, de mătase violetă, stacojie şi vişinie, răsucită şi de in răsucit 
 
 9. Apoi să iei două pietre, amândouă pietrele să fie de smarald, şi să sapi pe ele numele fiilor lui Israel: 
 

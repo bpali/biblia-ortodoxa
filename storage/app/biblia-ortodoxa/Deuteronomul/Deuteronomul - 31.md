@@ -24,7 +24,7 @@
 
 12. Să aduni poporul, bărbaţii, femeile, copiii şi pe străinii tăi care se vor afla în cetăţile tale, ca să audă şi să înveţe şi ca să se teamă de Domnul Dumnezeul vostru şi ca să se silească să împlinească toate cuvintele legii acesteia. 
 
-13. Fiii lor care nu ştiu vor auzi şi vor învăţa a se teme de Domnul Dumnezeul vostru în toate zilele, cît veri trăi pe pământul în care treceţi voi peste Iordan ca să-l stăpâniţi". 
+13. Fiii lor care nu ştiu vor auzi şi vor învăţa a se teme de Domnul Dumnezeul vostru în toate zilele, cît veţi trăi pe pământul în care treceţi voi peste Iordan ca să-l stăpâniţi". 
 
 14. După aceea a zis Domnul către Moise: "Iată s-a apropiat clipa în care să mori; cheamă pe Iosua şi staţi la uşa cortului adunării, că Eu îi voi da poveţe!" Şi a venit Moise cu Iosua şi au stat la uşa cortului adunării. 
 

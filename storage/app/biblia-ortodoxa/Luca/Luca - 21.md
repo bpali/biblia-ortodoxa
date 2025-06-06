@@ -66,7 +66,7 @@
 
 33. Cerul şi pământul vor trece, dar cuvintele Mele nu vor trece. 
 
-34. Luaţi seama la voi înşivă, să nu se îngreuieze inimile voastre de mâncare şi de băutură şi de grijile vieţii, şi ziua aceea să vine peste voi fără de veste, 
+34. Luaţi seama la voi înşivă, să nu se îngreuieze inimile voastre de mâncare şi de băutură şi de grijile vieţii, şi ziua aceea să vină peste voi fără de veste, 
 
 35. Ca o cursă; căci va veni peste toţi cei ce locuiesc pe faţa întregului pământ. 
 

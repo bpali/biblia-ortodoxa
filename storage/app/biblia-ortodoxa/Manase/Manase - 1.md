@@ -1,6 +1,6 @@
 # Rug&#259;ciunea regelui Manase - 1
 
-1. "Doamne, Atotţiitorule, Dumnezeul părinţilor noştri, al lui Avraam, ai lui Isaac şi al lui Iacov, şi al seminţie celei drepte a lor,
+1. "Doamne, Atotţiitorule, Dumnezeul părinţilor noştri, al lui Avraam, ai lui Isaac şi al lui Iacov, şi al seminţiei celei drepte a lor,
 
 2. Cel care ai făcut cerul şi pământul cu toată podoaba lor,
 

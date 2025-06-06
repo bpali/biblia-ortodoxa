@@ -8,6 +8,8 @@
 
 4. Îi iubeam cu dragoste părintească, eu iubire fără de margini. Am fost pentru ei ca unul care le ridică jugul de pe grumajii lor, şi mă plecam către ei şi-i hrăneam. 
 
+5. Nu se vor mai duce în Egipt, ci Asiria le va fi rege, căci n-au voit să se întoarcă la credinţă.
+
 6. Sabia să pustiiască cetăţile lui şi să dărâme întăriturile lui, din pricina punerii lor la cale! 
 
 7. Dar poporul Meu este hotărât să se despartă de Mine. Îl strig, dar el nici nu ridică ochii spre Mine. 

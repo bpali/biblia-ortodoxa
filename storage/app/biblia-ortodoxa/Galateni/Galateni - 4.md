@@ -48,15 +48,17 @@
 
 24. Unele ca acestea au altă însemnare, căci acestea (femei) sunt două testamente: Unul de la Muntele Sinai, în Arabia, şi răspunde Ierusalimului de acum, care zace în robie cu copiii lui; 
 
-25. Iar cea liberă este Ierusalimul cel de sus, care este mama noastră. 
+25. Căci Agar este Muntele Sinai, în Arabia, şi răspunde Ierusalimului de acum, care zace în robie cu copiii lui;
 
-26. Căci scris este: "Veseleşte-te, tu, cea stearpă, care nu naşti! Izbucneşte de bucurie şi strigă, tu care nu ai durerile naşterii, căci mulţi sunt copiii celei părăsite, mai mulţi decât ai celei care are bărbat". 
+26. Iar cea liberă este Ierusalimul cel de sus, care este mama noastră.
 
-27. Iar noi, fraţilor, suntem după Isaac, fii ai făgăduinţei. 
+27. Căci scris este: "Veseleşte-te, tu, cea stearpă, care nu naşti! Izbucneşte de bucurie şi strigă, tu care nu ai durerile naşterii, căci mulţi sunt copiii celei părăsite, mai mulţi decât ai celei care are bărbat".
 
-28. Ci precum atunci cel ce se născuse după trup prigonea pe cel ce se născuse după Duh, tot aşa şi acum. 
+28. Iar noi, fraţilor, suntem după Isaac, fii ai făgăduinţei.
 
-29. Dar ce zice Scriptura? "Izgoneşte pe roabă şi fiul ei, căci nu va moşteni fiul roabei, împreună cu fiul celei libere". 
+29. Ci precum atunci cel ce se născuse după trup prigonea pe cel ce se născuse după Duh, tot aşa şi acum.
 
-30. Deci, fraţilor, nu suntem copii ai roabei, ci copii ai celei libere. 
+30. Dar ce zice Scriptura? "Izgoneşte pe roabă şi fiul ei, căci nu va moşteni fiul roabei, împreună cu fiul celei libere".
+
+31. Deci, fraţilor, nu suntem copii ai roabei, ci copii ai celei libere.
 

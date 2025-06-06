@@ -1,6 +1,6 @@
 # Psalmi - 12
 
-1. Până când, Doamne, mă vei uita până în sfârşit? Până când vei întoarce fata Ta de la mine? 
+1. Până când, Doamne, mă vei uita până în sfârşit? Până când vei întoarce faţa Ta de la mine? 
 
 2. Până când voi grămădi gânduri în sufletul meu, durere în inima mea ziua şi noaptea? 
 

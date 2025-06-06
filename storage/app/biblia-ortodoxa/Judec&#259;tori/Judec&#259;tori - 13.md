@@ -34,7 +34,7 @@
 
 17. Şi a zis Manoe către îngerul Domnului: "Cum îţi este numele? Ca să te mărim, când se va împlini cuvântul tău". 
 
-18. Zis-a îngerul către el: "La ce mă întrebi tu de numele meu? Că el este minunata". 
+18. Zis-a îngerul către el: "La ce mă întrebi tu de numele meu? Că el este minunat". 
 
 19. Atunci a luat Manoe un ied şi prinos de pâine şi le-a adus Domnului pe o stâncă. Şi a făcut acela minunea pe care au văzut-o Manoe şi femeia sa. 
 

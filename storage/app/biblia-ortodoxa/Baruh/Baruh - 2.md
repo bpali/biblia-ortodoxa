@@ -14,6 +14,8 @@
 
 7. Toate relele, pe care le-a rostit Domnul împotriva noastră, acestea au venit peste noi. 
 
+8. Şi nu ne-am rugat feţei Domnului ca să se întoarcă fiecare de la cugetele inimii sale celei rele.
+
 9. Şi a privegheat Domnul asupra celor răi şi i-a adus Domnul peste noi, că drept este Domnul în toate lucrurile Sale, pe care ni le-a poruncit. 
 
 10. Şi n-am ascultat glasul Lui, ca să umblăm după poruncile Domnului, pe care le-a dat înaintea feţei noastre. 

@@ -8,6 +8,8 @@
 
 4. "Ce vi se pare că este bine, a răspuns regele, aceea voi face". Atunci a stat regele la poartă şi a ieşit tot poporul rânduit pe sute şi pe mii. 
 
+5. Apoi regele a dat poruncă lui Ioab, lui Abişai şi lui Itai şi le-a zis: "Să-mi cruţaţi pe băiatul Abesalom!" Şi tot poporul a auzit cum a poruncit regele tuturor căpeteniilor pentru Abesalom.
+
 6. Au ieşit deci oamenii la câmp în întâmpinarea Israeliţilor, şi s-a dat bătălia în pădurea lui Efraim. 
 
 7. Acolo a fost în ziua aceea bătălie mare; poporul israelit a fost înfrânt de robii lui David, căzând ucişi douăzeci de mii de oameni. 

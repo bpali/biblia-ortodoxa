@@ -8,6 +8,8 @@
 
 4. Acest lucru a plăcut regelui şi întregii adunări. 
 
+5. Şi au hotărît să se dea de veste la tot Israelul, de la Beer-Şeba pînă la Dan, ca să vină la Ierusalim pentru sărbătorirea Paştiilor Domnului Dumnezeului lui Israel, căci demult nu se mai sărbătorise aşa cum este scris.
+
 6. Şi s-au dus trimişii cu scrisorile, care erau făcute de rege şi de căpeteniile lui, prin toată ţara lui Israel şi a lui Iuda şi, după porunca regelui, le spuneau: "Fii ai lui Israel, întoarceţi-vă la Domnul Dumnezeul lui Avraam şi al lui Isaac şi al lui Israel, şi Se va întoarce şi El la cei rămaşi dintre voi, care aţi mai scăpat din mâna regilor Asiriei. 
 
 7. Şi nu mai fiţi aşa ca părinţii voştri şi ca fraţii voştri, care au săvârşit fărădelegi înaintea Domnului Dumnezeului părinţilor lor, şi El i-a dat pustiirii, precum vedeţi. 

@@ -10,7 +10,7 @@
 
 5. Ceea ce fusese pedeapsă pentru vrăjmaşi s-a făcut pentru ei, în nevoia lor, binecuvântare. 
 
-6. Şi pe când apa marelui fluviu se prefăcuse în. sânge necurat, 
+6. Şi pe când apa marelui fluviu se prefăcuse în sânge necurat, 
 
 7. Spre pedeapsă că Faraon poruncise să ucidă pe copii, Tu ai dat celor ce-şi pierduseră nădejdea apă din belşug; 
 

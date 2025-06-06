@@ -30,6 +30,8 @@
 
 15. Dar mila Mea nu o voi lua de la el cum am luat-o de la Saul, pe care l-am lepădat înaintea feţei tale. 16. Casa ta va fi neclintită, regatul tău va rămâne veşnic înaintea ta şi tronul tău va sta în veci". 
 
+16. Casa ta va fi neclinitită, regatul tău va rămîne veşnic înaintea ta şi tronul tău va sta în veci."
+
 17. Toate cuvintele acestea şi toată vedenia aceasta le-a spus Natan lui David. 
 
 18. Atunci s-a dus regele David şi, stând înaintea feţei Domnului, a zis: "Cine sunt eu, Doamne Dumnezeul meu, şi ce este casa mea, de m-ai mărit aşa? 

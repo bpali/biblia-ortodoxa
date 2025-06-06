@@ -8,6 +8,8 @@
 
 4. Că fărădelegile mele au covârşit capul meu, ca o sarcină grea apăsat-au peste mine. 
 
+5. Împuţitu-s-au şi au putrezit rănile mele, de la faţa nebuniei mele.
+
 6. Chinuitu-m-am şi m-am gârbovit până în sfârşit, toată ziua mâhnindu-mă umblam. 
 
 7. Că şalele mele s-au umplut de ocări şi nu este vindecare în trupul meu. 

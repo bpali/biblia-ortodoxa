@@ -16,9 +16,9 @@
 
 8. Să nu-ţi faci chip cioplit, nici vreo înfăţişare a celor ce sunt sus în cer, sau jos pe pământ, sau în apă şi sub pământ. 
 
-9. Să, nu te închini lor, nici să le slujeşti, căci Eu Domnul Dumnezeul tău sunt Dumnezeu zelos, Care pedepseşte vina părinţilor în copii până la al treilea şi al patrulea neam pentru cei ce Mă urăsc. 
+9. Să nu te închini lor, nici să le slujeşti, căci Eu Domnul Dumnezeul tău sînt Dumnezeu zelos, Care pedepseşte vina părinţilor în copii până la al treilea şi al patrulea neam pentru cei ce Mă urăsc. 
 
-10. Şi Mă milostivesc până la a! miilea neam către cei ce Mă iubesc şi păzesc poruncile Mele. 
+10. Şi Mă milostivesc până la al miilea neam către cei ce Mă iubesc şi păzesc poruncile Mele.
 
 11. Să nu iei numele Domnului Dumnezeului tău în deşert, că nu va lăsa Domnul Dumnezeul tău nepedepsit pe cel ce ia numele Lui în deşert. 
 

@@ -44,5 +44,7 @@
 
 22. Şi şi-a ridicat Aaron mâinile sale asupra poporului şi l-a binecuvântat, iar după ce a săvârşit jertfa pentru păcat, arderea de tot şi jertfa de mântuire, s-a coborât. 
 
-23. Apoi au intrat Moise şi Aaron în cortul adunării şi când au ieşit au binecuvântat tot poporul; atunci s-a arătat slava Domnului la tot poporul. 24. Şi ieşind foc de la Domnul, a mistuit pe jertfelnic arderea de tot şi grăsimea. Şi văzând tot poporul a scos strigăte de bucurie şi a căzut cu faţa la pământ. 
+23. Apoi au intrat Moise şi Aaron în cortul adunării şi când au ieşit au binecuvântat tot poporul; atunci s-a arătat slava Domnului la tot poporul.
+
+24. Şi ieşind foc de la Domnul, a mistuit pe jertfelnic arderea de tot şi grăsimea. Şi văzând tot poporul a scos strigăte de bucurie şi a căzut cu faţa la pământ.
 

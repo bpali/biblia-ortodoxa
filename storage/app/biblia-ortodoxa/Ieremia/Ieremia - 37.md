@@ -8,6 +8,8 @@
 
 4. Căci pe atunci Ieremia intra şi umbla încă slobod prin popor, pentru că nu-l aruncaseră încă în închisoare. 
 
+5. Oştirea lui Faraon a ieşit din Egipt, iar Caldeii, care împresuraseră Ierusalimul, auzind vestea aceasta, s-au retras de la Ierusalim.
+
 6. Atunci a fost cuvântul Domnului către Ieremia proorocul şi a zis: 
 
 7. "Aşa grăieşte Domnul, Dumnezeul lui Israel: Regelui lui Iuda, care v-a trimis la Mine să Mă întrebaţi, aşa să-i spuneţi: Iată, oştirea lui Faraon care v-a veni în ajutor se va întoarce în ţara sa, în Egipt, 
@@ -21,6 +23,8 @@
 11. În vremea când oştirea Caldeilor s-a retras de la Ierusalim din pricina oştirii egiptene, 
 
 12. Ieremia a plecat din Ierusalim, ca să se ducă în ţara lui. Veniamin, să descurce nişte treburi de moştenire cu cei de acolo. 
+
+13. Dar cînd se afla el la poarta lui Veniamin, căpetenia gărzii, care era acolo și care se numea Ireia, fiul lui Șelemia, fiul lui Hanania, a prins pe Ieremia proorocul și i-a zis: "Tu vrei să fugi la Caldei!"
 
 14. "Aceasta este minciună; eu nu vreau să fug la Caldei", a zis Ieremia. Dar fără să-l asculte, Ireia l-a arestat pe Ieremia şi l-a dus la dregători. 
 

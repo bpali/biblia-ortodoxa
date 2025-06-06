@@ -46,7 +46,7 @@
 
 23. Şi atunci voi mărturisi lor: Niciodată nu v-am cunoscut pe voi. Depărtaţi-vă de la Mine cei ce lucraţi fărădelegea. 
 
-24. De aceea, oricine aude aceste cuvinte ale Mele şi la îndeplineşte asemăna-se-va bărbatului înţelept care a clădit casa lui pe stâncă. 
+24. De aceea, oricine aude aceste cuvinte ale Mele şi le îndeplineşte asemăna-se-va bărbatului înţelept care a clădit casa lui pe stâncă. 
 
 25. A căzut ploaia, au venit râurile mari, au suflat vânturile şi au bătut în casa aceea, dar ea n-a căzut, fiindcă era întemeiată pe stâncă. 
 

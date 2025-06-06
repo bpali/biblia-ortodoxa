@@ -8,6 +8,8 @@
 
 4. Dar Eu sunt Domnul Dumnezeul tău din ţara Egiptului încoace şi să nu cunoşti un alt dumnezeu, decât pe Mine, şi în afară de Mine nu este izbăvitor. 
 
+5. Eu te-am cunoscut pe tine în pustiu şi în pământ uscat ţi-am dat păşune!
+
 6. Dar cu cât ei aveau păşune, cu atât mâncau mai mult, iar după ce se săturau, inima lor se semeţea. Pentru aceasta ei M-au uitat. 
 
 7. De aceea voi fi pentru ei ca un leu şi îi voi pândi pe cale ca o panteră. 

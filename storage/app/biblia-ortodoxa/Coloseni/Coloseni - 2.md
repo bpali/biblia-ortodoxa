@@ -36,7 +36,7 @@
 
 18. Nimeni să nu vă smulgă biruinţa printr-o prefăcută smerenie şi printr-o făţarnică închinare la îngeri, încercând să pătrundă în cele ce n-a văzut, şi îngâmfându-se zadarnic cu închipuirea lui trupească, 
 
-19. În loc să se ţină strâns de capul de la care trupul tot, - prin încheieturi şi legături, îndestulându-se şi întocmindu-se S, sporeşte în creşterea lui Dumnezeu. 
+19. În loc să se ţină strâns de capul de la care trupul tot, - prin încheieturi şi legături, îndestulându-se şi întocmindu-se -, sporeşte în creşterea lui Dumnezeu. 
 
 20. Dacă deci aţi murit împreună cu Hristos pentru înţelesurile cele slabe ale lumii, pentru ce atunci, ca şi cum aţi vieţui în lume, răbdaţi porunci ca acestea: 
 

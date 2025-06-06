@@ -8,6 +8,8 @@
 
 4. Şi a zis Domnul: "Faci tu oare bine că ţi-ai aprins mânia?" 
 
+5. Atunci Iona a ieşit din cetate şi s-a aşezat la răsăritul ei, şi-a făcut o colibă şi a stat sub ea la umbră, ca să vadă ce se va întâmpla cu cetatea.
+
 6. Şi Domnul Dumnezeu a făcut să crească un vrej care s-a ridicat deasupra capului lui Iona, ca să-i ţină umbră şi să-i mai potolească mânia. Şi s-a bucurat Iona cu bucurie mare pentru vrej. 
 
 7. Dar Dumnezeu, a doua zi, la revărsatul zorilor, a poruncit unui vierme să reteze vrejul. Iar el s-a uscat. 

@@ -18,6 +18,8 @@
 
 9. Pentru ce se trufeşte cel ce este pământ şi cenuşă, când în viaţă el le leapădă mereu dinăuntrul său? 10. Boala îndelungată o taie doctorul şi împăratul astăzi este şi mâine va muri. 
 
+10. Boala îndelungată o taie doctorul şi împăratul astăzi este şi mîine va muri.
+
 11. Că murind, omul va moşteni şerpi şi fiare şi viermi. 
 
 12. Începutul trufiei omului este a părăsi pe Dumnezeu şi a-şi întoarce inima sa de la Cel care l-a făcut. 

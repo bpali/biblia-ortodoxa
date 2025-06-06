@@ -8,6 +8,8 @@
 
 4. Ieşi-va duhul lor şi se vor întoarce în pământ. În ziua aceea vor pieri toate gândurile lor. 
 
+5. Fericit cel ce are ajutor pe Dumnezeul lui Iacob, nădejdea lui, în Domnul Dumnezeul lui.
+
 6. Cel ce a făcut cerul şi pământul, marea şi toate cele din ele; Cel ce păzeşte adevărul în veac; 
 
 7. Cel ce face judecată celor năpăstuiţi, Cel ce dă hrană celor flămânzi. Domnul dezleagă pe cei ferecaţi în obezi; 

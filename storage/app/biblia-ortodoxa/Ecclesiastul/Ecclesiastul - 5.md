@@ -36,5 +36,5 @@
 
 18. Şi ori de câte ori Dumnezeu dă omului bogăţii şi bunuri şi ii îngăduie să mănânce şi să-şi ia partea lui şi să se bucure de munca lui, acesta este un dar de la Dumnezeu;
 
-19. Căci el nu se gândeşte prea mult la zilele vieţii lui, fiindcă Dumnezeu îl sine prins cu bucuria inimii lui.
+19. Căci el nu se gândeşte prea mult la zilele vieţii lui, fiindcă Dumnezeu îl ţine prins cu bucuria inimii lui.
 

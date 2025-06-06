@@ -34,7 +34,7 @@
 
 17. Să nu duşmăneşti pe fratele tău în inima ta, dar să mustri pe aproapele tău, ca să nu porţi păcatul lui. 
 
-18. Să nu te răzbuni cu mina ta şi să nu ai ură asupra fiilor poporului tău, ci să iubeşti pe aproapele tău ca pe tine însuţi. Eu sunt Domnul Dumnezeul vostru. 
+18. Să nu te răzbuni cu mîna ta şi să nu ai ură asupra fiilor poporului tău, ci să iubeşti pe aproapele tău ca pe tine însuţi. Eu sunt Domnul Dumnezeul vostru. 
 
 19. Legea Mea să o păziţi; vitele tale să nu le faci să se împreune cu alt soi; ogorul tău să nu-l semeni deodată cu două feluri de seminţe; cu haină ţesută din felurite torturi, de lână şi de în, să nu te îmbraci. 
 
@@ -62,7 +62,9 @@
 
 31. Să nu alergaţi la cei ce cheamă morţii, pe la vrăjitori să nu umblaţi şi să nu vă întinaţi cu ei. Eu sunt Domnul Dumnezeul vostru. 
 
-32. Înaintea celui cărunt să te scoli, să cinsteşti faţa bătrânului şi să te temi de Domnul Dumnezeul tău. Eu sunt Domnul Dumnezeul vostru. 33. De se va aşeza vreun străin în pământul vostru, să nu-l strâmtoraţi. 
+32. Înaintea celui cărunt să te scoli, să cinsteşti faţa bătrânului şi să te temi de Domnul Dumnezeul tău. Eu sunt Domnul Dumnezeul vostru.
+
+33. De se va aşeza vreun străin în pământul vostru, să nu-l strâmtoraţi.
 
 34. Străinul, care s-a aşezat la voi, să fie pentru voi ca şi băştinaşul vostru; să-l iubiţi ca pe voi înşivă, că şi voi aţi fost străini în pământul Egiptului. Eu sunt Domnul Dumnezeul vostru. 
 

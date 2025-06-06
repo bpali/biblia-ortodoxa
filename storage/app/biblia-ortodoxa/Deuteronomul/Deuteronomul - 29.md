@@ -36,7 +36,7 @@
 
 18. Să nu fie printre voi bărbat sau femeie, sau neam, sau seminţie, a căror inimă să se abată acum de la Domnul Dumnezeul vostru, ca să meargă să slujească dumnezeilor acelor popoare; să nu fie printre voi rădăcină din care să răsară otravă şi pelin, 
 
-19. Nici astfel de om care, auzind cuvintele blestemului acestuia, s-ac lăuda în inima sa, zicând: "Eu voi fi fericit, cu toate că voi umbla după voinţa inimii mele", şi să piară astfel cel sătul cu cel flămând. 
+19. Nici astfel de om care, auzind cuvintele blestemului acestuia, s-ar lăuda în inima sa, zicând: "Eu voi fi fericit, cu toate că voi umbla după voinţa inimii mele", şi să piară astfel cel sătul cu cel flămând. 
 
 20. Pe unul ca acesta nu-l va ierta Domnul, ci îndată se va aprinde mânia Domnului şi iuţimea Lui asupra unui astfel de om şi va cădea asupra lui tot blestemul legământului acestuia, care este scris în cartea aceasta a legământului şi va şterge Domnul numele lui de sub cer, 
 

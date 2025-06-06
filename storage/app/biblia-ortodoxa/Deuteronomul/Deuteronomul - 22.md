@@ -20,7 +20,7 @@
 
 10. Să nu ari cu un bou şi cu un asin. 
 
-11. Să nu te îmbraci cu haină făcută din două feluri de fire: de lână şi de în. 
+11. Să nu te îmbraci cu haină făcută din două feluri de fire: de lână şi de in.
 
 12. Fă-ţi ciucuri în cele patru colţuri ale mantiei tale cu care te acoperi. 
 
@@ -47,6 +47,8 @@
 23. De va fi vreo fată tânără, logodită cu bărbat şi cineva o va întâlni în cetate şi se va culca cu dânsa, 
 
 24. Să-i aduceţi pe amândoi la poarta cetăţii aceleia şi să-i ucideţi cu pietre: pe fată pentru că n-a ţipat în cetate, iar pe bărbat pentru că a necinstit pe femeia aproapelui său. Şi aşa să stârpeşti răul din mijlocul tău. 
+
+25. Dacă vreun bărbat va întîlni la cîmp o fată logodită şi, prinzînd-o, se va culca cu ea, să-l ucideţi numai pe bărbatul care s-a culcat cu ea;
 
 26. Iar fetei să nu-i faci nimic. Asupra fetei nu este vină de moarte, căci aceasta este tot una ca şi cum cineva s-ar ridica asupra aproapelui său şi l-ar omorî; 
 

@@ -2,9 +2,13 @@
 
 1. Apoi, întorcându-ne noi, am pornit prin pustie, spre Marea Roşie, cum îmi grăise Domnul, şi am umblat zile multe împrejurul Muntelui Seir. 
 
-2. Iar Domnul a zis către mine: 3. "Ajunge de când umblaţi împrejurul acestui munte! Întoarceţi-vă dar spre miazănoapte! 
+2. Iar Domnul a zis către mine:
+
+3. "Ajunge de când umblaţi împrejurul acestui munte! Întoarceţi-vă dar spre miazănoapte!
 
 4. Dă poruncă poporului şi zi: Voi acum veţi trece prin hotarele fiilor lui Isav, fraţii voştri, care locuiesc în Seir, şi aceştia se vor teme de voi foarte tare. 
+
+5. Dar să nu începeţi războiul cu ei, căci nu vă voi da din pământul lor nici o palmă de loc, pentru că Muntele Seir l-am dat în stăpânirea lui Isav.
 
 6. Mâncare să vă cumpăraţi de la ei cu bani şi să mâncaţi; şi apă de băut să vă cumpăraţi de la ei tot cu bani; 
 

@@ -10,6 +10,8 @@
 
 5. Iar Faraon a zis către Iosif: "Tatăl tău şi fraţii tăi au venit la tine.
 
+6. Iată, pământul Egiptului îţi stă înainte; aşează pe tatăul tău şi pe fraţii tăi în cel mai bun loc din ţară. Să locuiască ei în pământul Goşen, şi de cunoşti printre ei oameni pricepuţi, pune-i supreveghetori peste vitele mele!"
+
 7. Apoi a adus Iosif înăuntru pe Iacov, tatăl său, şi l-a înfăţişat înaintea lui Faraon şi a binecuvântat Iacov pe Faraon;
 
 8. Iar Faraon a zis către Iacov: "Câţi sunt anii vieţii tale?"

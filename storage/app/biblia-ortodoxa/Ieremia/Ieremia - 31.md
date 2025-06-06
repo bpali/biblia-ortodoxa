@@ -8,6 +8,8 @@
 
 4. Din nou te voi pune în rânduială, fecioara lui Israel, din nou te voi înfrumuseţa cu timpanele tale şi vei ieşi la hora celor ce se veselesc; 
 
+5. Din nou vei lua viile de pe dealurile Samariei, și vierii care le vor lucra se vor folosi ei singuri de ele.
+
 6. Că va veni vremea când străjile de pe muntele Efraim vor striga: "Sculaţi-vă să ne suim în Sion, la Domnul Dumnezeul nostru!" 
 
 7. Căci aşa zice Domnul: "Strigaţi de bucurie pentru Iacov şi strigaţi înaintea căpeteniei popoarelor, vestiţi; lăudaţi şi ziceţi: Doamne, izbăveşte pe poporul Tău, rămăşiţa lui Israel! 

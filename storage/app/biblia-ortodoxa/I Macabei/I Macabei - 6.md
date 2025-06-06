@@ -4,6 +4,8 @@
 
 2. Şi templul din ea bogat foarte, şi că acolo sunt acoperăminte de aur şi zale şi arme, pe care le-a lăsat acolo Alexandru, fiul lui Filip, regele Macedonenilor, care a stăpânit întâi între Elini. 
 
+3. Şi a venit să ia cetatea şi să o prade, şi n-a putut, fiindcă planul lui fusese aflat.
+
 4. Şi s-au sculat asupra lui cu război, şi a fugit şi s-a dus de acolo cu întristare mare, întorcându-se în Babilon. 
 
 5. Şi a venit un oarecare în Persia care i-a spus că au fost înfrânte taberele care s-au dus în ţara lui Iuda, 
@@ -72,7 +74,9 @@
 
 37. Şi turnuri tari de lemn erau pe elefanţi şi-i acoperea pe fiecare, turnurile fiind întărite cu chingi şi la fiecare turn erau treizeci şi doi de bărbaţi, care se războiau de sus, afară de călăuza elefantului. 
 
-38. Şi călărimea au aşezat-o de o parte şi de alta a taberei, ca să tulbure pe duşman şi să ocrotească laturile. 39. Şi când strălucea soarele peste scuturile cele de aur, sclipeau munţii de ele şi străluceau ca nişte făclii aprinse. 
+38. Şi călărimea au aşezat-o de o parte şi de alta a taberei, ca să tulbure pe duşman şi să ocrotească laturile.
+
+39. Şi când strălucea soarele peste scuturile cele de aur, sclipeau munţii de ele şi străluceau ca nişte făclii aprinse.
 
 40. Şi s-a întins o parte din tabăra regelui peste munţii cei înalţi, iar alta peste locurile cele de jos, şi mergeau cu pază şi cu rânduială. 
 

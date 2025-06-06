@@ -8,6 +8,8 @@
 
 4. Şi vreau să o aşez din nou precum era mai înainte, am adunat oştire multă, am făcut corăbii de război şi am hotărât să pedepsesc pe cei care au prădat ţara noastră şi pe cei care au pustiit cetăţile din hotarele stăpânirii mele. 
 
+5. Acum dar îţi întăresc toate scutirile date de regii cei mai înainte de mine şi orice alte daruri ţi-au îngăduit ei.
+
 6. Şi-ţi îngăduiesc să faci bani sub numele tău, în ţara ta. 
 
 7. Şi Ierusalimul şi templul să fie libere şi toate armele ce ai şi cetăţile pe care le-ai zidit şi le stăpâneşti să-ţi rămână ţie; 

@@ -8,6 +8,8 @@
 
 4. Sedechia, regele lui Iuda, nu va scăpa din mâinile Caldeilor, ci va fi dat fără îndoială în mâinile regelui Babilonului şi va grăi cu el gură către gură; ochii lui var vedea ochii aceluia, 
 
+5. Și acela va duce pe Sedechia la Babilon, unde va și sta el pînă-l voi cerceta, zice Domnul. Dacă vă veţi lupta cu Caldeii, nu veţi avea izbîndă!"
+
 6. Atunci Ieremia a zis: "Aşa a fost cuvântul Domnului către mine: 
 
 7. Iată vine Hanameel, fiut lui Şalum, unchiul tău, vine la tine ca să-îi zică: "Cumpără pentru tine ţarina mea cea din Anatot, pentru că după dreptul de înrudire se cuvine să o cumperi tu". 

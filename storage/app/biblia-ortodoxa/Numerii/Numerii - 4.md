@@ -8,6 +8,8 @@
 
 4. Slujba fiilor lui Cahat la cortul adunării va fi să ducă sfânta sfintelor. 
 
+5. Cînd va pleca tabăra, să intre Aaron şi fii lui, să ia perdeaua despărţitoare între sfînta şi sfînta sfintelor, să învelească cu ea chivotul legii;
+
 6. Să pună apoi un acoperământ de piei vinete, iar pe deasupra aceluia să arunce un înveliş de lână albastră şi să pună pârghiile la chivot. 
 
 7. Apoi să aştearnă pe masa pâinilor punerii înainte o fată de masă violetă şi să pună pe ea blidele, talerele, oalele şi cupele cele pentru turnat, şi pâinile ei pururea să fie pe ea. 
@@ -29,6 +31,8 @@
 15. După aceea Aaron şi fiii lui, înainte de plecarea taberei la drum, vor strânge tot cortul şi vor înveli toate lucrurile locaşului sfânt, iar fiii lui Cahat vor veni să le ia; dar nu trebuie să se atingă ei de sfânta sfintelor, ca să nu moară. Aceste lucruri ale cortului să le ducă fiii lui Cahat. 
 
 16. Eleazar, fiul preotului Aaron, va fi supraveghetor peste untdelemnul pentru sfeşnic, aromatele de tămâiat, darul zilnic de pâine şi mirul; va avea şi supraveghere peste tot cortul şi peste câte sunt în el şi în locaşul sfânt şi peste toate lucrurile". 
+
+17. Şi a grăit Domnul cu Moise şi cu Aaron şi a zis:
 
 18. "Să nu lăsaţi să se stingă sămânţa neamului lui Cahat dintre leviţi. 
 

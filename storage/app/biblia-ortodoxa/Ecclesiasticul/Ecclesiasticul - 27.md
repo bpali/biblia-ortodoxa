@@ -10,7 +10,7 @@
 
 5. Vasele olarului le lămureşte cuptorul; iar ispita omului cugetul lui. 
 
-6. Cum a fast lucrat pomul, arată rodul lui; aşa şi cuvântul arată gândul cel din inima omului. 
+6. Cum a fost lucrat pomul, arată rodul lui; aşa şi cuvântul arată gândul cel din inima omului. 
 
 7. Să nu lauzi pe nimeni înainte de a vorbi cu el, căci cuvântul este piatra de încercare u omului. 
 

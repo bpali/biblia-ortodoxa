@@ -10,7 +10,7 @@
 
 5. Şi eu, Daniel, m-am uitat, şi iată alţi doi bărbaţi stând în picioare, unul pe un mal al fluviului, iar altul pe celălalt mal al fluviului. 
 
-6. Şi unul a zis celui ce era îmbrăcat în veşminte de in şi stătea deasupra apelor fluviului: "Pe când se var sfârşi aceste fapte minunate?" 
+6. Şi unul a zis celui ce era îmbrăcat în veşminte de in şi stătea deasupra apelor fluviului: "Pe când se vor sfârşi aceste fapte minunate?" 
 
 7. Şi am ascultat pe bărbatul cel îmbrăcat în veşminte de in care stătea deasupra apelor fluviului şi el şi-a ridicat dreapta şi stânga lui către ceruri şi a jurat pe Cel ce este viu în veci: "Va mai ţine o vreme; vremuri şi jumătate de vreme, iar când se va isprăvi de sfărâmat puterea poporului celui sfânt, atunci vor lua sfârşit toate acestea". 
 

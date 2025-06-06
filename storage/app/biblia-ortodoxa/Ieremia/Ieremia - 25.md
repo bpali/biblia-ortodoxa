@@ -8,6 +8,8 @@
 
 4. Trimis-a Domnul la noi necontenit pe toţi robii Săi prooroci şi voi n-aţi ascultat, nici v-aţi plecat urechea ca să-i ascultaţi. 
 
+5. Vi s-a zis: Să se întoarcă fiecare de la calea sa cea rea şi de la faptele sale cele urîte, şi veţi trăi în ţara pe care Domnul o dat-o vouă și părinților voștri din veac în veac.
+
 6. Şi să nu umblaţi după alţi dumnezei, ca să le slujiţi şi să vă închinaţi lor, şi să nu Mă mâniaţi cu faptele mâinilor voastre, şi nu vă voi face nici un fel de rău. 
 
 7. Voi însă nu M-aţi ascultat, zice Domnul, ci M-aţi mâniat eu faptele mâinilor voastre, spre răul vostru. 
@@ -68,7 +70,9 @@
 
 35. Atunci veţi cădea ca berbecii aleşi. Nu va fi adăpost pentru păstori, nici scăpare pentru stăpânii turmei. 
 
-37. Şi câmpiile cele paşnice sunt pustiite de urgia mâniei Domnului. 
+36. Ascultați strigătul păstorilor și urletul stăpînilor turmei, că Domnul a pustiit pășunea lor.
+
+37. Şi câmpiile cele paşnice sunt pustiite de urgia mîniei Domnului. 
 
 38. Părăsitu-şi-a el locaşul său, ca un leu, şi ţara lor s-a pustiit de urgia pustiitorului şi de mânia aprinsă a Domnului". 
 

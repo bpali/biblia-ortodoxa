@@ -28,7 +28,7 @@
 
 14. Dacă îşi va lua cineva femeie şi se va desfrâna cu mama ei, nelegiuire face; pe foc să se ardă şi el şi ea, ca să nu fie nelegiuiri între voi. 
 
-15. Cel ce se va amesteca. cu dobitoc să se omoare şi să ucideţi dobitocul. 
+15. Cel ce se va amesteca cu dobitoc să se omoare şi să ucideţi dobitocul. 
 
 16. Dacă femeia se va duce la vreun dobitoc, ca să se unească cu el, să ucizi femeia şi dobitocul să se omoare, că sângele lor este asupra lor. 
 

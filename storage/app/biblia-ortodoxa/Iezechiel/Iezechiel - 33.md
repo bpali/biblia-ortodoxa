@@ -20,7 +20,7 @@
 
 10. Şi tu, fiul omului, spune casei lui Israel: Voi ziceţi aşa: "Nelegiuirile noastre şi păcatele noastre sunt asupra noastră şi ne stingem în ele; cum vom putea dar să trăim?" 
 
-11. Spune-le: Precum este adevărat că Eu sunt viu, tot aşa este de adevărat că Eu nu voiesc moartea. păcătosului, ci ca păcătosul să se întoarcă de la calea sa şi să fie viu. Întoarceţi-vă, întoarceţi-vă de la căile voastre cele rele! Pentru ce să muriţi voi, casa lui Israel? 
+11. Spune-le: Precum este adevărat că Eu sunt viu, tot aşa este de adevărat că Eu nu voiesc moartea păcătosului, ci ca păcătosul să se întoarcă de la calea sa şi să fie viu. Întoarceţi-vă, întoarceţi-vă de la căile voastre cele rele! Pentru ce să muriţi voi, casa lui Israel? 
 
 12. Şi tu, fiul omului, spune fiilor poporului tău: Dreptatea dreptului nu-l va scăpa în ziua păcătuirii lui şi nelegiuitul nu va cădea pentru nelegiuirea sa în ziua întoarcerii sale de la nelegiuirea sa, precum nici dreptul în ziua păcătuirii sale nu va putea rămâne cu viaţă pentru dreptatea sa. 
 

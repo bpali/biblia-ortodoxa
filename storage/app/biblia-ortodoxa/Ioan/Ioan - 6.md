@@ -30,7 +30,7 @@
 
 15. Cunoscând deci Iisus că au să vină şi să-L ia cu sila, ca să-L facă rege, S-a dus iarăşi în munte, El singur. 
 
-16. Şi când s-a făcut seră, ucenicii Lui s-au coborât la mare. 
+16. Şi când s-a făcut seară, ucenicii Lui s-au coborât la mare. 
 
 17. Şi intrând în corabie, mergeau spre Capernaum, dincolo de mare. Şi s-a făcut întuneric şi Iisus încă nu venise la ei, 
 

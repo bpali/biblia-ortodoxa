@@ -36,7 +36,7 @@
 
 18. Spini şi pălămidă îţi va rodi el şi te vei hrăni cu iarba câmpului!
 
-19. ÃŽn sudoarea fetei tale îţi vei mânca pâinea ta, până te vei întoarce în pământul din care eşti luat; căci pământ eşti şi în pământ te vei întoarce".
+19. În sudoarea fetei tale îţi vei mânca pâinea ta, până te vei întoarce în pământul din care eşti luat; căci pământ eşti şi în pământ te vei întoarce".
 
 20. Şi a pus Adam femeii sale numele Eva, adică viaţă, pentru că ea era să fie mama tuturor celor vii.
 

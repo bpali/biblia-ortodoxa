@@ -44,7 +44,7 @@
 
 22. Şi a venit unul din mai-marii sinagogilor, anume Iair, şi văzându-L pe Iisus, a căzut la picioarele Lui, 
 
-23. Şi L-a rugat mult, zicând: Fiica mea este pe moarte, ci, venind, pune mâinile tale peste ea, ca să scape şi să trăiască. 
+23. Şi L-a rugat mult, zicând: Fiica mea este pe moarte, ci, venind, pune mâinile peste ea, ca să scape şi să trăiască. 
 
 24. Şi a mers cu el. Şi mulţime multă îl urma pe Iisus Şi Îl îmbulzea. 
 

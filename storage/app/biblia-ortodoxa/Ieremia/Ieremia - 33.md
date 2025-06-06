@@ -38,6 +38,8 @@
 
 19. Şi a mai fost cuvântul Domnului către Ieremia, zicând: 
 
+20. "Aşa zice Domnul: de poţi strica legămîntul Meu cel pentru ziuă şi legămîntul Meu cel pentru noapte şi să faci ca ziua şi noaptea să nu mai vină la vremea lor, atunci poate se va strica şi legămîntul Meu cel încheiat cu robul meu David.
+
 21. Ca să nu mai aibă el fiu care să domnească pe scaunul lui; de asemenea şi cel încheiat cu leviţii-preoţi, slujitorii Mei. 
 
 22. Precum e nenumărată oştirea cerească şi nenumărat nisipul mării, aşa voi înmulţi neamul lui David, robul Meu, şi al leviţilor celor ce-Mi slujesc Mie". 

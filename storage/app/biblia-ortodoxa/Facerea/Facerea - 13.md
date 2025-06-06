@@ -8,7 +8,9 @@
 
 4. Adică până la locul unde era jertfelnicul pe care-l ridicase el mai înainte, şi acolo a chemat Avram numele Domnului.
 
-6. ÃŽnsă pământul acela nu-i încăpea să stea împreună, căci averile lor erau multe şi nu-i încăpea locul să trăiască împreună.
+5. Şi Lot, care umbla cu Avraam, încă avea oi şi vite mari şi corturi.
+
+6. Însă pământul acela nu-i încăpea să stea împreună, căci averile lor erau multe şi nu-i încăpea locul să trăiască împreună.
 
 7. De aceea se întâmplau certuri între păzitorii vitelor lui Avram şi păzitorii vitelor lui Lot. Pe atunci locuiau în pământul acela Canaaneii şi Ferezeii.
 

@@ -8,6 +8,8 @@
 
 4. "Eu sunt intre voi străin şi pribeag; daţi-mi dar în stăpânire un loc de mormânt la voi, ca să îngrop pe moarta mea".
 
+5. Iar fii lui Het au răspuns şi au zis către Avraam:
+
 6. "Nu, domnul meu, ci ascultă-ne: Tu aici la noi eşti u: voievod al lui Dumnezeu. Deci, îngroapă-ţi moarta în cel mai bun dintre locurile noastre de îngropare, că nici unul dintre noi nu te va opri să-ţi îngropi moarta acolo".
 
 7. Atunci s-a sculat Avraam şi s-a închinat poporului jării aceleia, adică fiilor lui Het.

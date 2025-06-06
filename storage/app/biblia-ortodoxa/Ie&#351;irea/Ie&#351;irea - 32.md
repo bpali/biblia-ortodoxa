@@ -34,7 +34,7 @@
 
 17. Atunci, auzind Iosua glasul poporului răsunând, a zis către Moise: "În tabără se aud strigăte de război". 
 
-18. Iar Moise a zis: "Acesta nu este glas de biruitori, nici glas de biruiţi; ci eu aud glas de oameni beli". 
+18. Iar Moise a zis: "Acesta nu este glas de biruitori, nici glas de biruiţi; ci eu aud glas de oameni beţi". 
 
 19. Iar după ce s-a apropiat de tabără, el a văzut viţelul şi jocurile şi, aprinzându-se de mânie, a aruncat din mâinile sale cele două table şi le-a sfărâmat sub munte. 
 

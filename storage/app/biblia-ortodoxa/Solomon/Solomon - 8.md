@@ -36,3 +36,9 @@
 
 18. Astfel, s-au făcut drepte cărările celor de pe pământ şi oamenii au învăţat ceea ce este plăcut înaintea Ta, şi prin înţelepciune au cunoscut mântuirea". 
 
+19. Am fost copil bun şi am avut parte de un suflet fără răutate.
+
+20. Sau mai vîrtos, aşa bun cum eram, am venit într-un trup nespurcat.
+
+21. Ci cunoscînd că nu voi putea altfel să am înţelepciune de nu-mi va da Dumnezeu, cu toate că şi aceasta era înţelepciune, să ştiu de la cine vine darul, m-am rugat Domnului şi m-am smerit înaintea Lui şi am zis din toată inima mea:
+

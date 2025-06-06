@@ -16,7 +16,7 @@
 
 8. Iar preotul Ţadoc şi Benaia, fiul lui Iehoiada, proorocul Natan, Şimei, Rei şi vitejii lui David n-au fost de partea lui Adonia. 
 
-9. Şi junghiind Adonia ai, boi şi viţei graşi la piatra Zohelet, cea de la En-Roghel, a chemat pe taţi fraţii săi, fiii regelui, dimpreună cu toţi bărbaţii lui Iuda, care erau în slujbă la rege. 
+9. Şi junghiind Adonia oi, boi şi viţei graşi la piatra Zohelet, cea de la En-Roghel, a chemat pe toţi fraţii săi, fiii regelui, dimpreună cu toţi bărbaţii lui Iuda, care erau în slujbă la rege. 
 
 10. Iar pe proorocul Natan, pe Benaia, pe viteji şi pe Solomon, fratele lui, nu i-a chemat. 
 

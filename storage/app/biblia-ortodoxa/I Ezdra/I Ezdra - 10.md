@@ -16,7 +16,7 @@
 
 8. Şi cel ce nu va veni până în trei zile, pe averea aceluia, după sfatul căpeteniilor şi al bătrânilor, se va pune blestem, iar el însuşi va fi îndepărtat din obştea celor ce fuseseră în robie. 
 
-9. Şi s-au adunat toii locuitorii Iudei şi ai ţinutului lui Veniamin la Ierusalim în trei zile. şi aceasta era în luna a noua, în ziua a douăzecea a lunii acesteia. Şi s-a aşezat tot poporul în piaţa de la templul lui Dumnezeu, tremurând atât pentru păcatul acesta, cât şi din pricina ploilor. 
+9. Şi s-au adunat toţi locuitorii Iudei şi ai ţinutului lui Veniamin la Ierusalim în trei zile. Şi aceasta era în luna a noua, în ziua a douăzecea a lunii acesteia. Şi s-a aşezat tot poporul în piaţa de la templul lui Dumnezeu, tremurând atât pentru păcatul acesta, cât şi din pricina ploilor. 
 
 10. Şi s-a sculat Ezdra preotul şi le-a zis: "Voi aţi făcut păcat, luându-vă femei de neam străin şi cu aceasta aţi mărit vina lui Israel. 
 

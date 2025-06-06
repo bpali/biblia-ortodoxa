@@ -8,6 +8,8 @@
 
 4. Şi s-au dus acolo ca la trei mii de oameni, dar aceştia au luat-o la fugă în faţa celor din Ai. 
 
+5. Şi locuitorii din Ai au ucis din ei vreo treizeci şi şase de oameni şi i-au fugărit de la poartă până la Şebarim, iar pe coasta dealului i-a bătut; din care pricină inima poporului a slăbit şi şi-au pierdut tot curajul.
+
 6. Atunci Iosua şi-a sfâşiat veşmintele sale, a căzut cu faţa la pământ înaintea chivotului Domnului şi a stat aşa până seara şi el şi bătrânii lui Israel şi şi-au presărat pulbere pe capetele lor. 
 
 7. Atunci a zis Iosua: "O, Doamne Dumnezeule, de ce a trecut robul Tău poporul acesta peste Iordan? Oare, ca să-l dai în mâinile Amoreilor şi să ne pierzi? Mai bine rămâneam să locuim de cealaltă parte de Iordan! 

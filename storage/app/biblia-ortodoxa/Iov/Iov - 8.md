@@ -8,6 +8,8 @@
 
 4. Dacă feciorii tăi au păcătuit faţă de El, El i-a lăsat să se prăbuşească sub povara nelegiuirii lor. 
 
+5. Dar tu dacă vii la Dumnezeu, dacă te rogi de Cel Atotputernic,
+
 6. Dacă eşti nevinovat şi fără pată, atunci de bună seamă că va veghea asupra ta şi va clădi la loc casa dreptăţii tale 
 
 7. Şi starea ta cea veche va fi nimica toată, atât de mult vei fi deasupra în starea ta cea nouă. 

@@ -62,5 +62,5 @@
 
 31. Să nu faci aşa Domnului Dumnezeului tău, căci aceia fac dumnezeilor lor toate de care se îndepărtează Domnul şi pe care le urăşte El; aceia şi pe fiii şi pe fiicele lor le ard pe foc înaintea dumnezeilor lor. 
 
-32. Toate câte vă poruncesc siliţi-vă să le împliniţi şi nici să adaugi şi nici Să laşi ceva din ele". 
+32. Toate câte vă poruncesc siliţi-vă să le împliniţi şi nici să adaugi şi nici să laşi ceva din ele". 
 

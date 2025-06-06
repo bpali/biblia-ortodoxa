@@ -30,6 +30,8 @@
 
 15. O mare şi sub ea doisprezece boi; 16. Ligheane, lopeţi, furculiţe şi toate celelalte lucruri le-a făcut meşterul Hiram regelui Solomon, pentru templul Domnului, din aramă lustruită. 
 
+16. Ligheane, lopeţi, furculiţe şi toate celelalte lucruri le-a făcut meşterul Hiram regelui Solomon, pentru templul Domnului, din aramă lustruită.
+
 17. Acestea le-a turnat regele în preajma Iordanului, într-un pământ cleios, între Sucot şi Ţereda (Ţartan). 
 
 18. Toate lucrurile acestea le-a făcut Solomon în aşa de mare număr, încât nu se mai ştia greutatea aramei. 

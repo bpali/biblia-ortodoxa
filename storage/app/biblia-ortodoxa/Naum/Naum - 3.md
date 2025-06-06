@@ -12,6 +12,8 @@
 
 6. Voi arunca asupra ta cu spurcăciuni, te voi batjocori, privelişte te voi face 7. şi oricine te va vedea va întoarce capul de la tine, zicând: "Pierit-a Ninive! Cine o va jeli şi de unde îi voi căuta mângâietori?" 
 
+7. Şi oricine te va vedea va întoarce capul de la tine, zicînd: "Pierit-a Ninive! Cine o va jeli şi de unde îi voi căuta mîngîietori?"
+
 8. Oare tu eşti mai bine întărită decât No-Amon, cea aşezată pe malurile Nilului, înconjurată de apă, a cărei întăritură era marea şi ziduri erau apele? 
 
 9. Etiopia împreună cu Egiptul erau nesfârşita ei putere. Put şi Libienii, ajutoarele ei de luptă! 

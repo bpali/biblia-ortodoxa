@@ -8,6 +8,8 @@
 
 4. Până când vor spune şi vor grăi nedreptate; grăi-vor toţi cei ce lucrează fărădelegea? 
 
+5. Pe poporul Tău, Doamne, l-au asuprit şi moştenirea Ta au apăsat-o.
+
 6. Pe văduvă şi pe sărac au ucis şi pe orfani i-au omorât. 
 
 7. Şi au zis: "Nu va vedea Domnul, nici nu va pricepe Dumnezeul lui Iacob". 

@@ -2,7 +2,11 @@
 
 1. Auzind acestea toţi regii Amoreilor, cei de peste Iordan, cei din munte şi de la şes, cei de pe tot malul mării celei mari şi cei din apropierea Libanului: Heteii, Amoreii, Ghergheseii, Canaaneii, Ferezeii, Heveii şi Ibuseii, 
 
-2. S-au adunat împreună ca să se te toţi cu Iosua şi cu Israel. Iar locuitorii Ghibeonului, auzind a făcut Iosua cu Ierihonul şi cu Ai, au pus la cale un vicleşug, căci s-au dus şi au strâns merinde de drum şi au pus pe asinii lor saci vechi cu pâine şi vin în burdufuri vechi, rupte şi cârpite 
+2. S-au adunat împreună ca să se lupte toţi cu Iosua şi cu Israel.
+
+3. Iar locuitorii Ghibeonului, auzind a făcut Iosua cu Ierihonul şi cu Ai,
+
+4. Au pus la cale un vicleşug, căci s-au dus şi au strâns merinde de drum şi au pus pe asinii lor saci vechi cu pâine şi vin în burdufuri vechi, rupte şi cârpite
 
 5. Şi în picioarele lor încălţăminte şi sandale vechi şi peticite, iar pe ei haine rele; pâinea lor de drum era uscată, mucedă şi sfărâmată. 
 

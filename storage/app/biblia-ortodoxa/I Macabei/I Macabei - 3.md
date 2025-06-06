@@ -102,6 +102,8 @@
 
 51. Şi au strigat cu glas mare la cer, zicând: Ce vom face acestora şi unde îi vom duce? 
 
+52. Şi sfintele Tale s-au călcat şi s-au pîngărit şi preoţii Tăi sînt în plîngere şi în smerire.
+
 53. Şi iată neamurile s-au adunat asupra noastră ca să ne piardă pe noi; Tu ştii cele ce gândesc ei asupra noastră. 
 
 54. Cum vom putea sta împotriva lor, de nu ne vei ajuta Tu? Şi au trâmbiţat cu trâmbiţele şi au strigat cu glas mare. 

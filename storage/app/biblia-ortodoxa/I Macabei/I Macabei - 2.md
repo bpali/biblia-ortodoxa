@@ -68,7 +68,9 @@
 
 34. Iar ei au zis: Nu vom ieşi, nici nu vom face după cuvântul regelui, ca să nesocotim ziua de odihnă; 
 
-35. Şi au pornit asupra lor cu război. 36. Dar ei nu le-au răspuns, nici piatră n-au aruncat asupra lor, nici n-au astupat ascunzişurile, zicând: 
+35. Şi au pornit asupra lor cu război.
+
+36. Dar ei nu le-au răspuns, nici piatră n-au aruncat asupra lor, nici n-au astupat ascunzişurile, zicând: 
 
 37. Să murim toţi întru nevinovăţia noastră şi vor mărturisi pentru noi cerul şi pământul că fără de judecată ne ucideţi. 
 

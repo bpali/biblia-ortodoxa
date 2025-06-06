@@ -90,7 +90,7 @@
 
 45. Şi cel ce Mă vede pe Mine vede pe Cel ce M-a trimis pe Mine. 
 
-46. Eu, Lumină am venit în lume, ca tot cel ce crede în Mine să nu rămână întuneric. 
+46. Eu, Lumină am venit în lume, ca tot cel ce crede în Mine să nu rămână în întuneric. 
 
 47. Şi dacă aude cineva cuvintele Mele şi nu le păzeşte, nu Eu îl judec; căci n-am venit ca să judec lumea ci ca să mântuiesc lumea. 
 

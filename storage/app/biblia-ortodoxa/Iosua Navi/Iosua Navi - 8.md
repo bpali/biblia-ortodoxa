@@ -8,6 +8,8 @@
 
 4. Acestora le-a poruncit şi le-a zis: "Luaţi seama să pândiţi înapoia cetăţii, să nu vă depărtaţi tare de cetate şi să fiţi cu toţii gata. 
 
+5. Iar eu şi toţi cei cu mine vom înainta spre cetate. Şi când locuitorii din Ai ne vor ieşi înainte, ca prima dată, noi vom fugi de dânşii.
+
 6. Şi când vor alerga după noi şi-i vom depărta de cetate, vor zice: "Iată fug de noi, ca prima dată". 
 
 7. Şi când vom fugi noi de ei şi ei după noi, atunci voi să ieşiţi din ascunzătoare şi să cuprindeţi cetatea, că Domnul Dumnezeu o va da în mâinile voastre. 

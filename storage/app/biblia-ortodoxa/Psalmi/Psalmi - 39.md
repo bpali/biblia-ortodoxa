@@ -4,6 +4,8 @@
 
 2. A auzit rugăciunea mea. M-a scos din groapa ticăloşiei şi din tina noroiului 
 
+3. Şi a pus pe piatră picioarele mele şi a îndreptat paşii mei.
+
 4. Şi a pus în gura mea cântare nouă, cântare Dumnezeului nostru; 
 
 5. Vedea-vor mulţi şi se vor teme şi vor nădăjdui în Domnul. 

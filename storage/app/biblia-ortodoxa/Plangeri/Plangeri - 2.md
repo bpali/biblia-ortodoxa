@@ -8,6 +8,8 @@
 
 4. El a încordat arcul Său ca un duşman, dreapta Sa a stat gata ca a unui vrăjmaş şi a ucis tot ce desfăta ochiul în cortul fiicei Sionului; vărsat-a ca un foc mânia Lui. 
 
+5. Stăpînul s-a arătat ca un dușman nimicind Israelul; i-a dărîmat toate palatele şi cetăţile întărite şi asupra fiicei lui Iuda a adus multă supărare.
+
 6. Prăbuşit-a la pământ ca pe o dumbravă cortul lui, stricat-a locul de sărbătoare. Domnul a făcut să se uite zilele de odihnă în Sion, dispreţuind, în văpaia mâniei Lui, pe rege şi pe preot. 
 
 7. Dispreţuit-a Domnul jertfelnicul Său şi S-a îndepărtat de locaşul Său cel sfânt; dat-a zidurile palatelor Sale în mâna duşmanilor care au strigat în templul Domnului ca în zilele de sărbătoare. 

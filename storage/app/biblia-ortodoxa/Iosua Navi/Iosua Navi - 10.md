@@ -8,6 +8,8 @@
 
 4. "Veniţi la mine şi-mi ajutaţi să bat Ghibeonul, pentru că s-a supus lui Iosua şi fiilor lui Israel". 
 
+5. Şi aceşti cinci regi ai Amoreilor: regele Ierusalimului, regele Hebronului, regele Iarmutului, regele Lachişului şi regele Egionului, s-au suit cu tot poporul lor şi au tăbărât asupra Ghibeonului şi l-au împresurat.
+
 6. Atunci locuitorii Ghibeonului au trimis la Iosua, în tabăra Israeliţilor de la Ghilgal, zicând: "Să nu-ţi iei mâna de deasupra robilor tăi! Vino la noi repede de ne dă ajutor şi ne izbăveşte, că s-au adunat împotriva noastră toii regii Amoreilor care trăiesc în munţi". 
 
 7. Şi s-a suit Iosua din Ghilgal, el însuşi şi împreună cu dânsul tot poporul bun de război şi toţi bărbaţii viteji. 

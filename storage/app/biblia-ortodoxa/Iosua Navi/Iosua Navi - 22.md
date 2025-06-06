@@ -8,6 +8,8 @@
 
 4. Acum Domnul Dumnezeul vostru a liniştit pe fraţii voştri, cum le spusese. Întoarceţi-vă dar şi duceţi-vă la corturile voastre, în pământul moştenirii voastre, pe care vi l-a dat Moise, sluga Domnului, peste Iordan. 
 
+5. Dar să vă siliţi a împlini cu grijă poruncile şi legea pe care v-a dat-o Moise, sluga Domnului: de a iubi pe Domnul Dumnezeul vostru, de a umbla în toate căile Lui, de a păzi poruncile Lui, de a vă lipi de El şi de a-i sluji Lui din toată inima voastră şi din tot sufletul vostru".
+
 6. După aceea Iosua i-a binecuvântat şi le-a dat drumul şi ei s-au împărţit pe la corturile lor. 
 
 7. Unei jumătăţi din seminţia lui Manase i-a dat Moise parte în Vasan, iar celeilalte jumătăţi i-a dat Iosua parte cu fraţii lui dincoace de Iordan, spre apus. Şi când le-a dat drumul Iosua pe la corturile lor şi i-a binecuvântat, 

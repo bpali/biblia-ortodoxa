@@ -8,6 +8,8 @@
 
 4. După aceea m-a dus pe calea porţii de la miazănoapte, în faţa templului, şi am privit, şi iată slava Domnului umplea templul Domnului, şi am căzut cu faţa la pământ. 
 
+5. Şi mi-a zis Domnul: "Fiul omului, pleacă-ţi inima ta, priveşte cu ochii tăi şi ascultă cu urechile tale toate câte-ţi voi grăi despre toate aşezămintele templului Domnului şi despre toate legile ei. Uită-te cu băgare de seamă la intrarea templului şi la toate ieşirile din locaşul cel sfânt.
+
 6. Şi spune casei celei răzvrătite a lui Israel: Aşa grăieşte Domnul Dumnezeu: Destul vouă, casa lui Israel, cu toate urâciunile voastre; 
 
 7. Că aţi băgat înăuntru fii străini, netăiaţi împrejur la inimă şi netăiaţi împrejur la trup, ca să stea în locaşul Meu cel sfânt şi să spurce templul Meu; aţi adus pâinea Mea, grăsimea şi sângele şi aţi stricat legământul Meu cu tot felul de urâciuni de ale voastre. 

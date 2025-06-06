@@ -52,7 +52,7 @@
 
 26. Cum a intrat în casa lui Dumnezeu, în zilele lui Abiatar arhiereul, şi a mâncat pâinile punerii înainte, pe care nu se cuvenea să le mănânce decât numai preoţii, şi a dat şi celor ce erau cu el? 
 
-27. Şi le zicea lor: Sâmbăta a fost făcut pentru om, iar nu omul pentru sâmbătă. 
+27. Şi le zicea lor: Sâmbăta a fost făcută pentru om, iar nu omul pentru sâmbătă. 
 
 28. Astfel că Fiul Omului este domn şi al sâmbetei. 
 

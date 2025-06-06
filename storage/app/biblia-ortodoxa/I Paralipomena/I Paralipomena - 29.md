@@ -8,6 +8,8 @@
 
 4. Şi anume: trei mii de talanţi de aur, aur de ofir, şapte mii de talanţi de argint curat, pentru căptuşirea pereţilor în templu, 
 
+5. Pentru orice lucru de aur, pentru tot lucrul de argint şi pentru tot lucrul de mînă de meşter. Şi cine vrea să vină astăzi cu mîinile pline la Domnul?"
+
 6. Au început atunci să aducă jertfă capii de familii şi căpeteniile triburilor, căpeteniile peste mii şi peste sute şi căpeteniile cele peste averea regelui. 
 
 7. Şi au dat pentru zidirea templului lui Dumnezeu cinci mii de talanţi şi zece mii de drahme aur, argint zece mii de talanţi, aramă optsprezece mii talanţi şi fier o sută de mii de talanţi. 

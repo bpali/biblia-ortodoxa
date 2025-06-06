@@ -10,7 +10,9 @@
 
 5. Iar ei s-au răzvrătit împotriva Lui; ei, după netrebniciile lor, nu sunt fiii Lui, ci neam îndărătnic şi ticălos. Cu acestea răsplătiţi voi Domnului? 
 
-6. Popor nechibzuit şi fără de minte, au nu este El tatăl tău, Cel " te-a zidit, te-a făcut şi te-a întemeiat? . Adu-ti aminte de zilele cele de demult, cugetă la anii neamurilor trecute! Întreabă pe tatăl tău şi-ti va da de ştire, întreabă pe bătrâni, şi-ţi vor spune: 
+6. Popor nechibzuit şi fără de minte, au nu este El tatăl tău, Cel te-a zidit, te-a făcut şi te-a întemeiat?
+
+7. Adu-ti aminte de zilele cele de demult, cugetă la anii neamurilor trecute! Întreabă pe tatăl tău şi-ti va da de ştire, întreabă pe bătrâni, şi-ţi vor spune:
 
 8. Când Cel Preaînalt a împărţit moştenire popoarelor, când a împărţit pe fiii lui Adam, atunci a statornicit hotarele neamurilor după numărul îngerilor lui Dumnezeu; 
 
@@ -30,6 +32,8 @@
 
 16. Întărâtat-au râvna Lui cu dumnezei străini şi cu urâciunile lor L-au mâniat; 
 
+17. Adus-au jertfe demonilor, şi nu lui Dumnezeu, unor dumnezei noi, pe care nu i-au ştiut, care au venit de la vecinii lor şi pe care părinţii lor nu i-au cunoscut.
+
 18. Iar pe Apărătorul, Cel ce te-a născut, L-ai uitat şi nu ţi-ai adus aminte de Dumnezeu, Cel ce te-a zidit. 
 
 19. Văzut-a Domnul şi S-a mâniat şi în mânia Sa a trecut cu vederea pe fiii Săi şi pe fiicele Sale, 
@@ -46,7 +50,7 @@
 
 25. De din afară îi va pierde sabia, iar prin case groaza, pierzând pe tânăr şi pe tânără, pe copilul de ţâţă şi pe bătrânul acoperit de cărunteţe. 
 
-26. Am zis: ţi voi împrăştia şi voi şterge pomenirea lor dintre oameni. 
+26. Am zis: îi voi împrăştia şi voi şterge pomenirea lor dintre oameni. 
 
 27. Dar am amânat aceasta, pentru răutatea vrăjmaşilor, ca vrăjmaşii lor să nu se mândrească şi să zică: Mâna noastră este puternică şi toate acestea nu le-a făcut Domnul. 
 

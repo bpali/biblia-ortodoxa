@@ -12,7 +12,9 @@
 
 6. Dreapta Ta, Doamne, şi-a arătat tăria. Mâna Ta cea dreaptă, Doamne, pe vrăjmaşi i-a sfărâmat. 
 
-7. Cu mulţimea slavei Tale ai surpat pe cei potrivnici. Trimis-ai mânia Ta Şi i-a mistuit ca pe nişte paie. 8. La suflarea nărilor Tale s-a despărţit apa, Strânsu-s-au la un loc apele ca un perete Şi s-au închegat valurile în inima mării. 
+7. Cu mulţimea slavei Tale ai surpat pe cei potrivnici. Trimis-ai mânia Ta Şi i-a mistuit ca pe nişte paie.
+
+8. La suflarea nărilor Tale s-a despărţit apa, Strânsu-s-au la un loc apele ca un perete Şi s-au închegat valurile în inima mării.
 
 9. Vrăjmaşul zicea: "Alerga-voi după ei şi-i voi ajunge; Pradă voi împărţi şi-mi voi sătura sufletul de răzbunare; Voi scoate sabia şi mâna mea îi va stârpi". 
 
